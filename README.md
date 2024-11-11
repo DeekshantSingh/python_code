@@ -1,1 +1,1 @@
-# python_code
+https://nalog.gov.by/news/
